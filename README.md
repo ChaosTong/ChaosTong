@@ -12,3 +12,7 @@ I'm **Chaos**
 
 ## 😄 Pronouns
 - Do not regret
+
+## Magic Number
+
+![Visited By](https://count.getloli.com/get/@ChaosTong?theme=gelbooru)
