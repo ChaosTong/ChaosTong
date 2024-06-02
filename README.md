@@ -15,4 +15,4 @@ I'm **Chaos**
 
 ## Magic Number
 
-![Visited By](https://count.getloli.com/get/@ChaosTong?theme=gelbooru)
+![Visited By](https://count.easyulife.com/get/@ChaosTong?theme=gelbooru)
